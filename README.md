@@ -1,2 +1,2 @@
 # deadpool.github.io
-picknick
+ddco lab manual
